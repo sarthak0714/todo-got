@@ -1,0 +1,1 @@
+# Pissing off my frontend friends (JS Enthusiasts) by making HTMX+GO webapps
